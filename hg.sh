@@ -1,1 +1,1 @@
-andakakasim
+andaka kasam
